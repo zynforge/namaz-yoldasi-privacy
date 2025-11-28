@@ -1,1 +1,1 @@
-# Namaz Yoldaşı Gizlilik Sözleşmesi
+# Namaz Yoldaşı Gizlilik Politikası
